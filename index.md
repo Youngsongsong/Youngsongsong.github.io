@@ -26,12 +26,12 @@
 
 - [ ] *Let's be friends!*
 ### Contact me in any of the following ways if convenient.
-#### **Wechat:**
->>**song0B15**
-#### **Tencent QQ:**
->>**2466465514**
-#### **Instagram:**
->>**tieshu16**
-#### **[Sina Weibo](https://weibo.com/u/6089405013)**
-#### **[BiliBili](https://b23.tv/40u7u0)**
-#### **[NetEase cloud music](http://music.163.com/m/user/home?id=588642345)**
+#### **1.Wechat:**
+>**song0B15**
+#### **2.Tencent QQ:**
+>**2466465514**
+#### **3.Instagram:**
+>**tieshu16**
+#### **4.[Sina Weibo](https://weibo.com/u/6089405013)**
+#### **5.[BiliBili](https://b23.tv/40u7u0)**
+#### **6.[NetEase cloud music](http://music.163.com/m/user/home?id=588642345)**
