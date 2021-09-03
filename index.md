@@ -28,14 +28,14 @@
 ***
 - [ ] *Let's be friends!*
 ![](https://picture1-1307277383.cos.ap-nanjing.myqcloud.com/627FB65F-51A1-4799-89B9-818326C6D538.jpeg)
-### Contact me in any of the following ways if convenient.
+### *Contact me in any of the following ways if convenient.*
 
-- **Wechat:**
+- *Wechat:*
 >**song0B15**
--  **Tencent QQ:**
+-  *Tencent QQ:*
 >**2466465514**
--  **Instagram:**
+-  *Instagram:*
 >**tieshu16**
-- **[Sina Weibo](https://weibo.com/u/6089405013)**
-- **[BiliBili](https://b23.tv/40u7u0)**
-- **[NetEase cloud music](http://music.163.com/m/user/home?id=588642345)**
+- *[Sina Weibo](https://weibo.com/u/6089405013)*
+- *[BiliBili](https://b23.tv/40u7u0)*
+- *[NetEase cloud music](http://music.163.com/m/user/home?id=588642345)*
