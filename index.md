@@ -25,10 +25,13 @@
 ***
 
 - [ ] *Let's be friends!*
-### Contact me in any of the following ways if convenient:
-#### **Wechat:>>song0B15**
-#### **Tencent QQ:>>2466465514**
-#### **Instagram:>>tieshu16**
+### Contact me in any of the following ways if convenient.
+#### **Wechat:**
+>>**song0B15**
+#### **Tencent QQ:**
+>>**2466465514**
+#### **Instagram:**
+>>**tieshu16**
 #### **[Sina Weibo](https://weibo.com/u/6089405013)**
 #### **[BiliBili](https://b23.tv/40u7u0)**
 #### **[NetEase cloud music](http://music.163.com/m/user/home?id=588642345)**
