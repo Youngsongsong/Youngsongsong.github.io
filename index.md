@@ -25,9 +25,8 @@
 ***
 ***
 - [ ] *Let's be friends!*
----
 ![](https://picture1-1307277383.cos.ap-nanjing.myqcloud.com/F4EAF9A2-DDAB-4AF0-95FE-36D3952338C1.jpeg)
-![](https://picture1-1307277383.cos.ap-nanjing.myqcloud.com/845705CA-4F23-4DD8-9480-A29B3A3C0532.jpeg)
+![](https://picture1-1307277383.cos.ap-nanjing.myqcloud.com/55A83A72-5AA9-4B81-B23E-A3F0BBA73566.jpeg)
 #### Contact me in any of the following ways if convenient.
 
 - **Wechat:**
