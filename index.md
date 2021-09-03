@@ -25,8 +25,7 @@
 ***
 
 - [ ] *Let's be friends!*
-![Please attendance](![image](![image](https://user-images.githubusercontent.com/89965070/131942477-5f208860-16a5-4db9-9876-2a792ee29873.jpeg)
-)
+![Please attendance](https://graph.baidu.com/pcpage/similar?originSign=1228990d2e319490c763401630636648&srcp=crs_pc_similar&tn=pc&idctag=nj&sids=10006_10502_10510_10600_10902_10913_11006_10924_10905_10018_10901_10940_10907_11012_10971_10968_10972_11031_17850_17071_18002_18101_17200_17202_18300_18314_18332_19114_19300_19195_19162_19220_19211_19213_19214_19216_19218_19230_19268_19270_19280_19330_10000&logid=3083989681&entrance=general&tpl_from=pc&pageFrom=graph_upload_pcshitu&image=https%3A%2F%2Fss2.baidu.com%2F6ON1bjeh1BF3odCf%2Fit%2Fu%3D1851952493%2C2795901511%26fm%3D15%26gp%3D0.jpg&carousel=503&index=3&page=1&shituToken=bf1edf)
 #### Contact me in any of the following ways if convenient.
 
 - **Wechat:**
