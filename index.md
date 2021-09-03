@@ -25,8 +25,8 @@
 ***
 
 - [ ] *Let's be friends!*
+![Please attendance](https://huaban.com/pins/2781081022/)
 #### Contact me in any of the following ways if convenient.
-- ![给我点面子](https://huaban.com/pins/2781081022/)
 
 - **Wechat:**
 >**song0B15**
