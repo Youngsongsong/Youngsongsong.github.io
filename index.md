@@ -25,7 +25,7 @@
 ***
 
 - [ ] *Let's be friends!*
-！[给我点面子](https://huaban.com/pins/2781081022/)
+- ![给我点面子](https://huaban.com/pins/2781081022/)
 #### Contact me in any of the following ways if convenient.
 - **Wechat:**
 >**song0B15**
