@@ -23,9 +23,10 @@
 ---
 ###   我承认你有几分姿色，但是如果我40岁，我一定离婚去娶你，如果我30岁一定分手去娶你，如果我20岁我一定不顾一切的去追你，可是我现在每天还要上网课，作业还有很多没做完，每晚还要打一把王者荣耀排位赛。
 ***
-
+***
 - [ ] *Let's be friends!*
-![Please attendance](https://picture1-1307277383.cos.ap-nanjing.myqcloud.com/F4EAF9A2-DDAB-4AF0-95FE-36D3952338C1.jpeg)
+---
+![](https://picture1-1307277383.cos.ap-nanjing.myqcloud.com/F4EAF9A2-DDAB-4AF0-95FE-36D3952338C1.jpeg)
 ![](https://picture1-1307277383.cos.ap-nanjing.myqcloud.com/845705CA-4F23-4DD8-9480-A29B3A3C0532.jpeg)
 #### Contact me in any of the following ways if convenient.
 
